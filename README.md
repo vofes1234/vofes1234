@@ -1,1 +1,1 @@
-please ignore resourcepacks.zip i added by mistake :(
+please ignore resourcepacks.rar i added by mistake :(
