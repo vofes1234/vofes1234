@@ -1,1 +1,2 @@
-please ignore resourcepacks.rar i added by mistake :(
+all resource packs
+download them all and copy paste them in resource packs :)
